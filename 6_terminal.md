@@ -1,0 +1,5 @@
+![image](https://github.com/timurIsaevIY/Ozon_route_256_2024/assets/118661906/27584552-5b87-4e87-a0ef-2828ea858d14)
+![image](https://github.com/timurIsaevIY/Ozon_route_256_2024/assets/118661906/3ffdbaab-fc1b-4a95-b40e-4deb69752ebc)
+![image](https://github.com/timurIsaevIY/Ozon_route_256_2024/assets/118661906/3d1dff01-6267-4ed8-9ea0-b91d0d2ec1dd)
+![image](https://github.com/timurIsaevIY/Ozon_route_256_2024/assets/118661906/2888b759-f305-48c5-8f05-6c675f5afb3c)
+![image](https://github.com/timurIsaevIY/Ozon_route_256_2024/assets/118661906/412e787a-d1ac-4305-8807-5a2754be2b42)
